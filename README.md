@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics, Software Development and all things tech.
 - 🌱 I’m currently learning Data Analytics by getting my Google Data Analtyics certificate.
 - 💞️ I’m looking to collaborate on data analysis projects or software development projects.
-- 📫 How to reach me 
+- 📫 How to reach me https://www.linkedin.com/in/david-madrid-63749919a/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Huge WWE and basketball fan! 
 
